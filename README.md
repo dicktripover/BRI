@@ -1,5 +1,7 @@
 # BRI
 Fall of China
+https://pdfs.semanticscholar.org/afa7/a2c7f387a1c6bccc5e29ab15ca00fe73c28c.pdf
+The Forever War(1974). In these texts, otherwise “innocent” human beings are transformed by combat technologies, restructured as automated weapons systems, without consent or awareness of the cause for which they are fighting. Everything you want and need to know explained.
 
 https://pastebin.com/wQgDmY8t
 
